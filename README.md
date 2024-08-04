@@ -1,2 +1,3 @@
-![](https://media.tenor.com/qTciFaFBxIAAAAAM/anglade.gif)
-Putting this here while I make a rentry. Any pronouns. Usually at bsd/main road. Aisha readers int....let's hold hands...
+![alt text](https://i.pinimg.com/564x/a8/30/16/a83016ee8a98567d03e4ee7da311ef52.jpg)
+
+Ithagala my silly goobers
