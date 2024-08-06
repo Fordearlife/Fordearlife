@@ -1,3 +1,2 @@
-![alt text](https://i.pinimg.com/564x/a8/30/16/a83016ee8a98567d03e4ee7da311ef52.jpg)
-
-Ithagala my silly goobers
+![alt text](https://i.pinimg.com/564x/48/fc/84/48fc8495039c30436d73a66a78005588.jpg)
+![alt text](https://i.pinimg.com/564x/10/09/d2/1009d2c8db672dab48390087941f3fcb.jpg)
